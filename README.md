@@ -1,3 +1,3 @@
 # my-biography
-Interesting times
-this is a brief history as stated by Orunmjia Kaorsarat olajunmoke Omolabake Morenekeji Ajoke!
+Interesting!
+This is a super story as stated by Orunmjia Kaorsarat olajunmoke Omolabake Morenekeji Ajoke.
